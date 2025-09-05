@@ -1,1 +1,2 @@
-# Estudio-previo-de-los-m-todos-de-registro
+# Estudio-previo-de-los-métodos-de-registro
+El mantenimiento del método de registración contable para el análisis comparativo, resulta condición indispensable para lograr conclusiones fehacientes o, en su caso, la expresa mención de los cambios de criterios introducidos, indicando claramente la repercusión que tuvieron en las cifras analizadas. La atención sobre este aspecto se hace mucho más necesaria en el caso de comparaciones con otras empresas o sectores, principalmente cuando se efectúan con referencia a otros países, donde pueden prevalecer métodos o sistemas de contabilización o registro, con diferencias sustanciales.
